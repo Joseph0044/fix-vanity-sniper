@@ -1,0 +1,1 @@
+Hello friends, all vanity snipers on Discord have been patched , but I managed to fix this and tested it , you can take and use it. If you want a faster one, I can provide it in exchange for a small amount. Good luck!
